@@ -1,1 +1,1 @@
-19990428 Oh Min Gyun
+19990428 오민균 Oh Min Gyun
